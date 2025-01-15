@@ -32,4 +32,6 @@ Enhanced equipment uptime by 10%, contributing to smoother operations.
 
 Improved overall profitability and efficiency of workflows.
 
+Recognized with an Internal innovation award.
+
 
